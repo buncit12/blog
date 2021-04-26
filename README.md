@@ -1,0 +1,2 @@
+# blog
+untuk senang2
